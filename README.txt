@@ -1,2 +1,2 @@
 #My Site
-It is thw best. I love this site!
+It is the best. I love this site!
